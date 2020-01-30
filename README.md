@@ -1,0 +1,1 @@
+# bryan961629-Grupo3-Implementacoin-de-escalado-vertica
